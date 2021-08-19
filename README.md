@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi,  I just wanna ask u a question that what colour is your bra ? 👙
 
 <!--
 **quocbahuynh/quocbahuynh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+https://user-images.githubusercontent.com/39693803/130015822-40a4e052-21be-436e-b1ef-54d291774508.mp4
+
